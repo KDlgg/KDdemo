@@ -1,3 +1,2 @@
 # KDdemo
-dfdsfdsjfds
-fmsdfmsd
+新手啥也不懂，随便乱搞。
